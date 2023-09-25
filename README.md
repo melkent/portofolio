@@ -4,7 +4,7 @@
 
 - **Email:** [melvn.kent@binus.ac.id](mailto:melvn.kent@binus.ac.id)
 - **Phone:** 088214916868
-- **LinkedIn:** [https://www.linkedin.com/in/melvinkent](https://www.linkedin.com/in/melvinkent)
+- **LinkedIn:** [https://www.linkedin.com/in/melvin-kent](https://www.linkedin.com/in/melvin-kent-42a7b9203/)
 
 ## Purpose of Portfolio
 
